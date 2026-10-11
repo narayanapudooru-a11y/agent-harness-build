@@ -1,1 +1,1 @@
-- my name is narayana and they are 38 years old
+- my name is narayana and I'm 38 years old
